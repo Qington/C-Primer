@@ -10,3 +10,5 @@ In 2016-04-12, finished chapter 4.
 
 In 2016-04-13, finished chapter 5.
 
+In 2016-04-17, finished chapter 6.
+
