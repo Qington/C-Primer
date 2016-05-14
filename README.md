@@ -32,3 +32,7 @@ In 2016-05-08, finished chapter 15.
 
 In 2016-05-14, finished chapter 16
 
+In 2016-05-14, finished chapter 17.
+
+The last two chapters are not carefully learned for less possibility using.
+
